@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Hisokasai
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👋 Hi, I’m @Hisokasaiai
+- 👀 I’m interested in ... making friend
+- 🌱 I’m currently learning ... hoe to sp
+- 💞️ I’m looking to collaborate on ... no one
 - 📫 How to reach me ... by addfriend me on messenger
 - 
 
